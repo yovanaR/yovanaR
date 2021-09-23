@@ -8,6 +8,7 @@
 - Mis grupos favorito de kpop son: BTS, TXT, ENHYPEN, ITZY, STRAYKIDS ...☺
 - 💬 Puedes contactarme: yovana.ramos@utec.edu.pe
 - 😄 Puedes Llamarme como: Lía, Malía.
+- Mariano estuvo aquí >:)
 - ITZY:
 
  ![This is an image](https://user-images.githubusercontent.com/91266568/134557239-139a8992-4503-4f26-8c50-27a1935a7b8c.jpeg) 
