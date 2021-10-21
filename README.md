@@ -21,7 +21,8 @@
 ![This is an image](https://user-images.githubusercontent.com/91266568/134558806-a568609a-782d-4252-98df-28ba7c5c7a06.jpg)
 - TXT:
 ![This is an image](https://user-images.githubusercontent.com/91266568/134559475-596cde51-ed72-4463-b84b-3b5f95a81a7d.jpg)
-
+- v
+![This is an image](https://dam.tuenlinea.com/wp-content/uploads/2021/07/v-de-bts-tiene-amnesia-1024x573.jpg)
 
 
 
